@@ -1,2 +1,2 @@
 # kgofron.github.io
-[Click me!](https://www.researchgate.net/profile/K_Gofron)
+[My research on Research Gate!](https://www.researchgate.net/profile/K_Gofron)
